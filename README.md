@@ -1,6 +1,5 @@
 
-[https://github.com/tel36214287-star/new/settings/pages#:~:text=https%3A//tel36214287%2Dstar.github.io/new/](https://tel36214287-star.github.io/new/)
-
+ https://tel36214287-star.github.io/criar-site-no-vs-exemplo/
 
 --
 
